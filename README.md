@@ -15,6 +15,9 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
+# Rushikesh pise this side working for ISISI for last 6 years now i want to switch in IT so i can make an cyber attack on Russia and make Vladmir pay for his sins,
+hail Mahalakshmi
+
 
 ## Languages
 ![C](https://img.shields.io/badge/C-00599C?style=for-the-badge&logo=c&logoColor=white)
